@@ -1,1 +1,0 @@
-# sfk2000sarajevo
